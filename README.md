@@ -8,7 +8,7 @@ hi chat
 <img src=https://github.com/user-attachments/assets/559a86e3-e91e-45b4-8fd3-f2afee0c32a9 alt="animated"/> <img src=https://github.com/user-attachments/assets/85902b68-4311-4af9-a085-362d5c0472ed/> <img src=https://github.com/user-attachments/assets/ee7a3264-a2ab-4995-b37d-9be631700ab3/>
 </p>
 <p align="center">
-int if you like the boys, invincible, rdr2, gotg, maws, i/atsv, flash, deadpool or anything superhero related LOL
+int if you like the boys, invincible, rdr2, gotg, maws, i/atsv, marvel, dc, deadpool or just anything superhero related LOL
 </p>
 <p align="center">
 (carti and tyler fans pls hmu)
