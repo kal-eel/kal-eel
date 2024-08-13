@@ -27,6 +27,11 @@ dni if youre a hh fan, a proshipper or just weird in general 🙏
 
 
 <p align="center">
+i might also tend to send people drawings in their straw pages teehee
+</p>
+
+
+<p align="center">
 ‎‎‎‎‎‎‎‎ㅤ
 </p>
 ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎ㅤ<p align="center">
